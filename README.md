@@ -10,7 +10,7 @@ Calebsantos70@gmail.com
 ---
 
 #### **Objective**
-Innovative and detail-oriented architect with over 10 years of experience in designing residential and commercial buildings. Seeking to leverage expertise in sustainable architecture to contribute to [Company Name] and gain valuable international experience.
+Innovative and detail-oriented architect with over 10 years of experience in designing residential and commercial buildings. Seeking to leverage expertise in sustainable architecture to contribute to Gensler and gain valuable international experience.
 
 ---
 
@@ -58,14 +58,14 @@ Innovative and detail-oriented architect with over 10 years of experience in des
 
 #### **Certifications**
 
-- Bachelor of Architecture
-- Master of Sustainable Design
+- Certification in Historic Preservation
+- Certification in Advanced Architectural Design
 ---
 
 #### **Languages**
 
-- English (Fluent)
-- Yoruba (Fluent)
+- Spanish  (Advanced)
+- English  (Fluent)
 
 
 
