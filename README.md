@@ -59,9 +59,7 @@ Innovative and detail-oriented architect with over 10 years of experience in des
 #### **Certifications**
 
 - Bachelor of Architecture
-- Certification in Historic Preservation
-- Master of Architectural Design
-- Diploma in Architectural Design
+- Master of Sustainable Design
 ---
 
 #### **Languages**
